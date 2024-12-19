@@ -1,0 +1,2 @@
+# Maternal-Health-Outcome-and-Substance-Use-Disorder-
+How does socioeconomic disparities effects   substance use disorder in pregnant women, specifically access to healthcare and ethnicity in maternal mortality? What is the relationship between substance use disorder in pregnant women and socioeconomic disparities, specifically access to healthcare and ethnicity in maternal mortality and morbidity?
